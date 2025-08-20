@@ -51,8 +51,8 @@ This project aims to build a web-based or mobile-friendly platform for:
 For more information or inquiries:
 
 - **Email:** info@alsadatravel.com  
-- **Phone:** +123-456-7890  
-- **Website:** [www.alsadatravel.com](https://www.alsadatravel.com)  
+- **Phone:** +91 941 901 7863 
+- **Website:** [Umrah Packages From Srinagar and Kashmir](https://alsadatravels.com/)  
 - **Instagram/Facebook:** @alsadatravel  
 
 ---
